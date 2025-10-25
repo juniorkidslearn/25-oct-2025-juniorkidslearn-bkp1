@@ -1,0 +1,1 @@
+Old photo are present .
